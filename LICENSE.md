@@ -1,4 +1,4 @@
-# 
+# Enhance GarageBand for macOS with instant GarageBand for macOS Transition | batch-rendering + EQ, the #1 transition. Includes batch-rendering and EQ for a smoother and more
 
 
 
